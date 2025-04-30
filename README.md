@@ -1,0 +1,1 @@
+# cyber-security_statement :I am a highly motivated and detail_oriented cybersecurity analyst.i actively work to identify and analyze potential risks,threats,and vulnerabilities to security and ensure the confidentiality,intergrity,and availability of assets,to help safeguard organizations and people alike
